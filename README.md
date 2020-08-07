@@ -1,1 +1,8 @@
-# -American-Black-History
+# American-Black-History
+
+## 马尔科姆·X 
+原名:马尔克姆·利特尔
+
+## 马丁·路德·金
+
+马尔克姆·利特尔 马丁·路德·金两人最后均被枪杀
